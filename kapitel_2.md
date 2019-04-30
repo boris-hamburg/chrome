@@ -36,3 +36,9 @@ None of you seem to understand. I'm not locked in here with you. You're locked i
  Never compromise. Not even in the face of Armageddon. That's always been the difference between us, Daniel.
 
   Men get arrested. Dogs get put down.
+
+  While lucrative, the implant has cost Johnny his childhood memories, and he seeks to have the implant removed to regain his memories
+
+  Johnny is told that the information exceeds his current memory capacity of 80 gigabytes, but he acquires a compression unit that effectively doubles the amount he can hold.
+
+  NAS, also called "the black shakes", is caused by an overexposure to electromagnetic radiation from omnipresent technological devices, and is presented as a raging epidemic affecting the world in the future. 
