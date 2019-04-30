@@ -6,6 +6,23 @@
 - Modder Community
 - KI Hotel
 
+The technology that shapes the NE Sprawl is in its shipping and news publishing.  R.A.S’s (rigid air ships) take incoming cargo from sea-steadings in the Atlantic to skydocks throughout the sprawl, with drones orbiting them to fend off lightning.
+
+New York City, Philadelphia, Washington D.C., Albany, and Baltimore all reached out and became a single, cyclopean urban tumor.   The Sprawl has grown over old and dated political and geographical lines.  Because of a city that has outstripped the county, state and federal laws that once contained the cities cannot contain the crime within the sprawl.   Gated communities became walled townships and entire slums are off the grid or at best in areas with rolling brown-outs.
+
+When water was privatized, corporations set up quasi-medieval fiefs in order to protect their stockholders’ resources.  Beyond the coast, the Atlantic Ocean is dotted with sea-steadings, each a city-state onto itself, some ruled by corporate shipping interests, others self-governed as industrial cooperative pirate-havens.
+
+Reservoir Fortress
+Travel Nexus Tower
+Sea-stedding
+Manhattan Walled Community
+5 Cities Museum
+Subway Tenement
+
+Unangemeldete Demonstration gegen die Privatisierung der Wasserversorgung
+
+Schwarzmarkt
+
 All the animals come out at night - whores, skunk pussies, buggers, queens, fairies, dopers, junkies, sick, venal. Someday a real rain will come and wash all this scum off the streets. I go all over. I take people to the Bronx, Brooklyn, I take 'em to Harlem. I don't care. Don't make no difference to me. It does to some. Some won't even take spooks. Don't make no difference to me.
 Thank God for the rain to wash the trash off the sidewalk.
 I think someone should just take this city and just... just flush it down the fuckin' toilet.
