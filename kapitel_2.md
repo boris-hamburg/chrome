@@ -21,7 +21,7 @@ Die Hotel-KI verspiegelte die Fenster, sperrte Staten Islands neugierige Blicke 
 
 Alexa blickte auf. Hatte sie den Hinweis verstanden? Doch ihr Botox-gelähmte Miene verriet nichts, ihn ihren verspiegelten Augen sah John lediglich sein besorgtes Gesicht.
 
-John war müde. Er musste die Daten aus seinem Speicher loswerden. Er wurde fahrlässig, wie immer, wenn er Daten zu lange mit sich rumtrug.
+John war erschöpft. Er musste die Daten aus seinem Speicher loswerden. Er wurde fahrlässig, wie immer, wenn er Daten zu lange mit sich rumtrug.
 
 Alexa wandte ihren Blick ab. "Perl, sind wir safe?"
 
@@ -99,4 +99,6 @@ None of you seem to understand. I'm not locked in here with you. You're locked i
 
   Johnny is told that the information exceeds his current memory capacity of 80 gigabytes, but he acquires a compression unit that effectively doubles the amount he can hold.
 
-  NAS, also called "the black shakes", is caused by an overexposure to electromagnetic radiation from omnipresent technological devices, and is presented as a raging epidemic affecting the world in the future. 
+  NAS, also called "the black shakes", is caused by an overexposure to electromagnetic radiation from omnipresent technological devices, and is presented as a raging epidemic affecting the world in the future.
+
+  he cityscapes of Hong Kong[30] and Shanghai[31] have had major influences in the urban backgrounds, ambiance and settings in many cyberpunk works such as Blade Runner and Shadowrun. Ridley Scott envisioned the landscape of cyberpunk Los Angeles in Blade Runner to be "Hong Kong on a very bad day".[32] The streetscapes of Ghost in the Shell were based on Hong Kong. Its director Mamoru Oshii felt that Hong Kong's strange and chaotic streets where "old and new exist in confusing relationships", fit the theme of the film well.[30] Hong Kong's Kowloon Walled City is particularly notable for its disorganized hyper-urbanization and breakdown in traditional urban planning to be an inspiration to cyberpunk landscapes.
