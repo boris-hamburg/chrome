@@ -1,7 +1,7 @@
 Der '44er Tsunami hatte New York wie ein gigantischer Reset-Knopf getroffen. 
 Mit dem Enthusiasmus einer Stadt, die ausgehungert nach Jobs war, wurde der Wiederaufbau angegangen. Der Tsunami-Fallout, Schutt und Asche, landete auf Staten Island.
 
-Arbeiter durch Maschinen, Angestellte durch Software ersetzt, hungerte New York nach Arbeit - und der Tsunami lieferte. Die Trauer der Hinterbliebenen war kurz, wich dem Enthusiasmus des Wiederaufbaus.
+Arbeiter durch Maschinen, Angestellte durch Software ersetzt, hungert der Plex nach Arbeit - und der Tsunami lieferte. Die Trauer der Hinterbliebenen war kurz, wich dem Enthusiasmus des Wiederaufbaus.
 
 John massierte seine Schläfen. Der Druck hinten den Augen war vertraut, eine Erinnerung an die Daten, die er im Schädelspeicher trug. Der allgegenwärtige hochfrequente Summen der Hafen-Drohnen, die Container über Container transportierten, taten ihr übriges.
 
@@ -63,6 +63,14 @@ Parker drückte Raven die Kamera in die Hand.
 - Dem Metroplex fehlte das Geld dazu.
 - Modder Community
 - KI Hotel
+- Straßenküchen
+- Der Hafen voller Drohnen
+- Gated Communities zu befestigten Siedlungen
+- Reise durch mehrere Konzern-Gebiete
+- Mono-Rail
+- Kämpfe gegen Roboter an Kabeln
+- Offen zur Schau getragene Waffen
+- Aneinander vertaute Schiffe, an Ölplattformen festgemachte Lebensräume.
 
 The technology that shapes the NE Sprawl is in its shipping and news publishing.  R.A.S’s (rigid air ships) take incoming cargo from sea-steadings in the Atlantic to skydocks throughout the sprawl, with drones orbiting them to fend off lightning.
 
@@ -102,3 +110,9 @@ None of you seem to understand. I'm not locked in here with you. You're locked i
   NAS, also called "the black shakes", is caused by an overexposure to electromagnetic radiation from omnipresent technological devices, and is presented as a raging epidemic affecting the world in the future.
 
   he cityscapes of Hong Kong[30] and Shanghai[31] have had major influences in the urban backgrounds, ambiance and settings in many cyberpunk works such as Blade Runner and Shadowrun. Ridley Scott envisioned the landscape of cyberpunk Los Angeles in Blade Runner to be "Hong Kong on a very bad day".[32] The streetscapes of Ghost in the Shell were based on Hong Kong. Its director Mamoru Oshii felt that Hong Kong's strange and chaotic streets where "old and new exist in confusing relationships", fit the theme of the film well.[30] Hong Kong's Kowloon Walled City is particularly notable for its disorganized hyper-urbanization and breakdown in traditional urban planning to be an inspiration to cyberpunk landscapes.
+
+  One of the cyberpunk genre's prototype characters is Case, from Gibson's Neuromancer.[33] Case is a "console cowboy," a brilliant hacker who has betrayed his organized criminal partners. Robbed of his talent through a crippling injury inflicted by the vengeful partners, Case unexpectedly receives a once-in-a-lifetime opportunity to be healed by expert medical care but only if he participates in another criminal enterprise with a new crew.
+
+Like Case, many cyberpunk protagonists are manipulated, placed in situations where they have little or no choice, and although they might see things through, they do not necessarily come out any further ahead than they previously were. These anti-heroes—"criminals, outcasts, visionaries, dissenters and misfits"[34]—call to mind the private eye of detective fiction. This emphasis on the misfits and the malcontents is the "punk" component of cyberpunk.
+
+Modern Tokyo already had the hallmarks of a cyberpunk world by the time Western authors were only dreaming of neon cathedrals overlooking thrumming, dirty streets.
