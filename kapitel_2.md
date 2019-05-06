@@ -116,3 +116,17 @@ None of you seem to understand. I'm not locked in here with you. You're locked i
 Like Case, many cyberpunk protagonists are manipulated, placed in situations where they have little or no choice, and although they might see things through, they do not necessarily come out any further ahead than they previously were. These anti-heroes—"criminals, outcasts, visionaries, dissenters and misfits"[34]—call to mind the private eye of detective fiction. This emphasis on the misfits and the malcontents is the "punk" component of cyberpunk.
 
 Modern Tokyo already had the hallmarks of a cyberpunk world by the time Western authors were only dreaming of neon cathedrals overlooking thrumming, dirty streets.
+
+ It explores the core transhumanist question to cyberpunk; what is the nature of being human in a world of increasingly advanced cybernetics?
+
+- A man has accidentally copied his consciousness and hires the PCs to destroy the copy. The copy insists it’s the original.
+
+- A hacker has figured out how to hack into people’s cyberbrains.
+
+- A robot has been destroyed. It was a hate crime committed by androids who feel they are more “human” and thus superior.
+
+- Due to increased automation, a dispossessed workforce has become a “Neo-luddite” faction, committing mass-vandalism (or murder?) of robots.
+
+- A man sells a companion bot who has fallen in love with him, she flees her new owner to be with him.
+
+Messing with a Megacorp is suicide. Heads will roll! The party members and employees who messed up. They get an unexpected reprieve, possibly just before the trigger of a very scary looking gun is pulled. A phone call comes through.. They're REALLY lucky, they'll get a temporary reprieve to break into another company on their behalf as expendables. Then, if they live, which should feel unlikely, they'll be in trouble with two different powerful corporations! Kill off some NPC they know very early on to show them how dangerous other NPC's are, on the slightest whim, or whim of a boss. From the moment they piss anyone off they should live in a constant state of paranoia, always on the move. The enemy will seem to come from nowhere They have all sorts of ways and means of finding you, like the Bourne films etc.
