@@ -80,3 +80,13 @@ Bandwidth and processor space are the most valuable commodities, people are sell
 A lonely ex-shoplifter who suffers from a neural block preventing him from returning to his hometown of Washington, D.C.
 
 Although there are areas of rich people in the Sprawl, a vast majority of the people struggle to survive from day to day. However, advanced technology is ubiquitous and accessible to all, regardless of financial standing. People spend much of their time in the "matrix" for work or recreational purposes. A common addiction for Sprawl inhabitants are "simstims" (simulated stimuli), a form of virtual reality that allows people to experience a television program, typically soap operas, from the point of view of a fictitious media personality.
+
+A capsule hotel (Japanese: カプセルホテル, translit. kapuseru hoteru), also known as a pod hotel, is a type of hotel developed in Japan that features a large number of small bed-sized rooms known as capsules. Capsule hotels provide cheap, basic overnight accommodation for guests who do not require or who cannot afford larger, more expensive rooms offered by more conventional hotels.
+
+The open end of the capsule can be closed with a curtain or a solid door for privacy, but cannot be locked.[1]
+
+Like a hostel, many amenities are communally shared, including toilets, showers, wireless internet, and dining rooms. In Japan, a capsule hotel may have a communal bath and sauna. Some hotels also provide restaurants, snack bars or bars (or at least vending machines), pools, and other entertainment facilities. There may be a lounge with upholstered chairs for relaxing, along with newspapers and reading material.[2]
+
+The console beeps recognition of my card, mag-lock thunks open and the door cycles open. Echoes of bulky combat boots on wet concrete reverberate as I walk down the humid, strip-lit hallway. Condensation on the dark glass walls glisten as vague shapes move within the many rooms lining the passageway. Numbers glow above each doorway, red or blue. I hear a muffled cry and a thud behind one door and press my ear against the cool, wet glass
+
+## Freezer Virus!
