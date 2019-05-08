@@ -92,3 +92,9 @@ The console beeps recognition of my card, mag-lock thunks open and the door cycl
 ## Freezer Virus!
 
 https://365tomorrows.com/2015/07/18/shutters-on-main/
+
+"2 Shots in the Dark" -> Barname?
+
+https://www.reddit.com/r/Cyberpunk/
+
+Chinas Social Credits System
