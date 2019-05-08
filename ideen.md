@@ -90,3 +90,5 @@ Like a hostel, many amenities are communally shared, including toilets, showers,
 The console beeps recognition of my card, mag-lock thunks open and the door cycles open. Echoes of bulky combat boots on wet concrete reverberate as I walk down the humid, strip-lit hallway. Condensation on the dark glass walls glisten as vague shapes move within the many rooms lining the passageway. Numbers glow above each doorway, red or blue. I hear a muffled cry and a thud behind one door and press my ear against the cool, wet glass
 
 ## Freezer Virus!
+
+https://365tomorrows.com/2015/07/18/shutters-on-main/
