@@ -59,3 +59,16 @@ Parker drückte Raven die Kamera in die Hand.
 - Perl System Check. Nichts kommt rein, nichts kommt raus. Blind Spot am Hintereingang, dort, wo die Müllcontainer stehen. StickIt Kamera.
 - John News Pochen hinter den Schläfen
 - Parker konfrontiert Alexa wegen Rustys Aussetzern.
+
+New York City, Philadelphia, Washington D.C., Albany, and Baltimore all reached out and became a single, cyclopean urban tumor.   The Sprawl has grown over old and dated political and geographical lines.  Because of a city that has outstripped the county, state and federal laws that once contained the cities cannot contain the crime within the sprawl.   Gated communities became walled townships
+
+disorganized hyper-urbanization
+
+neon cathedrals overlooking thrumming, dirty streets
+
+A common addiction for Sprawl inhabitants are "simstims" (simulated stimuli), a form of virtual reality that allows people to experience a television program, typically soap operas, from the point of view of a fictitious media personality.
+
+Like a hostel, many amenities are communally shared, including toilets, showers, wireless internet, and dining rooms. In Japan, a capsule hotel may have a communal bath and sauna. Some hotels also provide restaurants, snack bars or bars (or at least vending machines), pools, and other entertainment facilities. There may be a lounge with upholstered chairs for relaxing, along with newspapers and reading material.[2]
+
+The console beeps recognition of my card, mag-lock thunks open and the door cycles open. Echoes of bulky combat boots on wet concrete reverberate as I walk down the humid, strip-lit hallway. Condensation on the dark glass walls glisten as vague shapes move within the many rooms lining the passageway. Numbers glow above each doorway, red or blue. I hear a muffled cry and a thud behind one door and press my ear against the cool, wet glass
+
