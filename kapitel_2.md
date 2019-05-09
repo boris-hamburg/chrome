@@ -50,3 +50,12 @@ Parker trat an Alexa ran. "Rustys Ausfälle werden immer heftiger. Wie lange wil
 Dog warf Parker die Stick-It Kamera zu. "Bring Du die an. Frische Luft tut Dir gut."
 
 Parker drückte Raven die Kamera in die Hand.
+
+----
+
+- Straßen Staten Islands. Monorail. Regen auf Wagendächern, Regenschirmen. Werbung. Musik. Geruch von Essen. NYPD Drohne wirbelt Regen auf, Suchscheinwerfer antiseptisch, Abschaum verzieht sich in dunkle Ecken. Sirenen.
+- Pod Hotel. Gestrandete. Social Score / Multipass Problem. Wechselnde Besitzer von Vierteln. CryptoCurrency Junkies. Verkaufen Rechenpower für den nächsten Schuß, um den Hunger ein paar Stunden zu vergessen.
+- Rusty VarioFoam Sessel. Probleme, sich anzupassen. Servos lauter als sein Schnarchen.
+- Perl System Check. Nichts kommt rein, nichts kommt raus. Blind Spot am Hintereingang, dort, wo die Müllcontainer stehen. StickIt Kamera.
+- John News Pochen hinter den Schläfen
+- Parker konfrontiert Alexa wegen Rustys Aussetzern.
