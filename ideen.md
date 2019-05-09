@@ -98,3 +98,5 @@ https://365tomorrows.com/2015/07/18/shutters-on-main/
 https://www.reddit.com/r/Cyberpunk/
 
 Chinas Social Credits System
+
+Stabilizers - a drug that stops peoples bodies rejecting new cyberware
