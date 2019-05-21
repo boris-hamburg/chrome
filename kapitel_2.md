@@ -1,3 +1,6 @@
+Regen prasselt auf neonfarbene Regenschirme als die Karawanne von Lohnsklaven in die Trabantenstadt zurückkehrt.
+
+
 Der '44er Tsunami hatte New York wie ein gigantischer Reset-Knopf getroffen. 
 Mit dem Enthusiasmus einer Stadt, die ausgehungert nach Jobs war, wurde der Wiederaufbau angegangen. Der Tsunami-Fallout, Schutt und Asche, landete auf Staten Island.
 
